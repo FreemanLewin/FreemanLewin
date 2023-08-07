@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @FreemanLewin
+- 👀 I’m interested in distributed communities
+- 🌱 I’m currently learning everything!
+- 💞️ I’m looking to collaborate on Web3 Governance
+- 📫 How to reach me freeman@ourshuk.com
